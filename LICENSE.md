@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with premium Scripts for escape tsunami for brainrots, featuring invisibility and auto-collect. Download now to dominate every match with
 
 
 
